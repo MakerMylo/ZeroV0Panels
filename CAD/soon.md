@@ -1,1 +1,0 @@
-# CAD Model coming soon.
